@@ -1,4 +1,4 @@
-# YUN KANG MIN 👨‍💻
+# YUN KANG MIN(Posty) 👨‍💻
 
 # STUDY HARD, BE PATIENT, STEP BY STEP
 
